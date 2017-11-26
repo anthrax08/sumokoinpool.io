@@ -1,0 +1,2 @@
+# sumokoinpool.io
+Sumokoin Pool
